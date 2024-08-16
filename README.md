@@ -1,4 +1,4 @@
-## Hi there 👋
+## god is way and true ✝️⚔️🛡️
 
 <!--
 **diegohvianna/diegohvianna** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
